@@ -1,33 +1,9 @@
-hello this is a test repo that is for testing. 
-do not interfiere with this project       m         nm fng jg hfvbfbvifbvifhvuzfdhvupfhvpihererymehhhhhhhhhhhafaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaa
+axomic web deface is an open sourced free tool made by axom. 
+
+it is built to deface websites. 
+more stuff will be added and improved. 
+
+our discord : https://discord.gg/FgR3MXqZy9 | our yt : https://youtube.com/@axos0022 | out tiktok : https://tiktok.com/@axos002
 
 
-a
-q
-
-a
-a
-a
-
-defrfreg
-
-gtrg
-trgr
-t
-yy
-hy
-hyhytj
-h
-h
-nhy
-ny
-m
-h
-nhn'hl
-nkhpknhdgkjnhgknhjnjgjghjgjhg[jhgkhgkphgkjhg'jn
-jn;jhjj
-hijln
-hjh
-jhnjhnj
-ghnjf
+# use wisely
